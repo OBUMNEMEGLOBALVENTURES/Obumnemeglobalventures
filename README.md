@@ -1,6 +1,8 @@
 ### Hi there 👋
+I'M ACTIVE FOR ALL KINDS OF SEWING MATERIALS OF YOUR CHOICES.
+CONTACT ME DIRECTLY ON MY WHATSAPP
 
-<!--
+https://wa.me/message/TA2CTVRJOT43K1
 **OBUMNEMEGLOBALVENTURES/Obumnemeglobalventures** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
